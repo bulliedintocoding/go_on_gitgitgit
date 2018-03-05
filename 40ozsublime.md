@@ -1,0 +1,1 @@
+Yo, this is my daily practice for basic GitHub stuff. If you're reading, you should go drink a glass of water. Trust me, no one drinks enough water. Have a good one!
